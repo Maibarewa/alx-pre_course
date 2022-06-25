@@ -1,1 +1,1 @@
-My first readme
+I thank Allah alot
